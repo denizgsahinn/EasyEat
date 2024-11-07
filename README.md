@@ -1,0 +1,1 @@
+Seni yerim güzellik
